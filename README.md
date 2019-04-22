@@ -1,1 +1,0 @@
-# fortune-talle-1
